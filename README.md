@@ -1,4 +1,4 @@
-- ♤ Hi, I’m @SithVitor
+- ♤ Hi, I’m @Sithh
 - ♤ I’m interested in Games, Programming, etc...
 - ♤ I’m currently learning Computer Science
 - ♤ How to reach me: Just send a message here or in my instagram @vitoreaamorim
